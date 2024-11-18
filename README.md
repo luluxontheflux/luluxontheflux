@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @luluxontheflux
+- 👀 I’m interested in tweaking games and QoL content
+- 🌱 I’m currently learning ruby, python, C#, C++
+- 📫 How to reach me : @luluxontheflux_. on discord
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Black olives are purple
